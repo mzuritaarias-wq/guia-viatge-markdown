@@ -22,6 +22,9 @@ Santander es una ciudad plena de historia y con mucho que contar, ideal para des
 5. **Calzado para andar por casa** - Es recomendable llevar pantuflas o crocs ya que a excepción de verano las demás estaciones se puede enfriar muy rápido el suelo y te puede generar mucho frío en los pies
 ## Itinerario recomendado
 Día 1 Caminar por toda la bahía,probar el helado del lugar regado e ir al Museo del Botin.
+
 Día 2 Caminar por el centro histórico de la ciudad, probar los platillos antes dichos e ir al palacio de la Magdalena.
+
 Día 3 Ir al faro de cabo mayor,visitar el parque central y luego ir hasta el norte de santander donde se encuentra un poblado y unas vistas increíbles.
+
 [Mas informacion en](https://ca.wikipedia.org/wiki/Santander)
